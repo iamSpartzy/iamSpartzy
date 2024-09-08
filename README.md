@@ -2,7 +2,7 @@
 - 👀 I’m interested in data Science and Tech
 - 🌱 I’m currently learning as a Student
 - 💞️ I’m looking to collaborate on Gen AI and NLP
-- 📫 How to reach me "Mohd_Aathilx_x"
+- 📫 How to reach me mohammedaathil122@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: -_-
 
